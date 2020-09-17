@@ -105,3 +105,37 @@ Then, his father said" You should have gone for the head"
 Conor nodded,and dealt the finishing shot before his father could get his gun.
 Conor sighed and said "You know what, I would love to be American",
 before strolling back home
+
+CHAPTER "THE REST OF THE SECOND TALE/GUN THE HOUSE DOWN"
+
+Conor could feel his breathing growing heavy again. His heart was racing and that
+feverish feeling had come over him once more. He waited a long moment.
+Then he said, “Shoot the damn fireplace.”
+The monster’s (aw yeah,he's back for no reason) rifle immediately lashed out and shot the stone hearth from its
+foundations, the brick chimney tumbling down on top of it in a loud clatter.
+Conor’s breath got heavier still, like he was the one doing the destroying.
+“Mow down their beds,” he said.
+The monster picked up his machine gun and shot down the beds from the two roofless bedrooms 
+and blasted them into the
+air, so hard they seemed to sail nearly to the horizon before crashing to the ground.
+“Shoot their furniture!” Conor shouted. “Shoot everything!”
+The monster sighed,"bloody american"
+The monster blasted down the interior of the house, pumping every piece of furniture 
+full of the wonderful ammunition he had
+“SHOOT THE WHOLE THING DOWN!” Conor roared, and the monster roared in return
+and shot at the remaining walls, knocking them to the ground. Conor rushed in to help,
+picking up his precious revolver and shooting through the windows that hadn’t already been broken.
+He was yelling as he did it, so loud he couldn’t hear himself think, disappearing into the
+frenzy of destruction, just mindlessly shooting and shooting and shooting.
+The monster was right. It was very satisfying.
+Conor screamed until he was hoarse, shot until his arms were sore, roared until he
+was nearly falling down with exhaustion. When he finally stopped, he found the monster
+watching him quietly from outside the wreckage. Conor panted and leaned on the branch to keep
+himself balanced.
+Now that, said the monster, is how destruction is properly done.
+And suddenly they were back in Conor’s grandma’s sitting room.
+Conor saw that he had destroyed almost every inch of it.
+
+CHAPTER "DESTRUCTION/DESTRUCTION"
+
+To be continued...
