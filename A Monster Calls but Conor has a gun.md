@@ -138,4 +138,15 @@ Conor saw that he had destroyed almost every inch of it.
 
 CHAPTER "DESTRUCTION/DESTRUCTION"
 
-To be continued...
+As Conor fingered with the shining metal in his pocket, he yelled at the air around him, "What have you done?"
+No answer came.
+And he saw his grandma's car pulling in the driveway.
+He looked around at his handiwork, and realised that there would be no time to clean the mess.
+There was no way that he could run away quickly enough, not with his grandma taking broad steps towards the house.
+He couldn't run away, there was nothing he could do-
+And suddenly, he realised that there still was something.
+It wasn't the best idea, but it would work.
+Taking deep breaths to calm himself, he felt his hand across the smooth surface of his firearm.
+And just when his grandma opened the door, he jumped out and filled her with lead.
+All this before she could even say anything.
+Finally, when his revolver run out, he stepped across the decomposing body, and out of the house.
