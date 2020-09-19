@@ -111,7 +111,7 @@ CHAPTER "THE REST OF THE SECOND TALE/GUN THE HOUSE DOWN"
 Conor could feel his breathing growing heavy again. His heart was racing and that
 feverish feeling had come over him once more. He waited a long moment.
 Then he said, “Shoot the damn fireplace.”
-The monster’s (aw yeah,he's back for no reason) rifle immediately lashed out and shot the stone hearth from its
+The reincarnated monster’s rifle immediately lashed out and shot the stone hearth from its
 foundations, the brick chimney tumbling down on top of it in a loud clatter.
 Conor’s breath got heavier still, like he was the one doing the destroying.
 “Mow down their beds,” he said.
@@ -150,3 +150,55 @@ Taking deep breaths to calm himself, he felt his hand across the smooth surface 
 And just when his grandma opened the door, he jumped out and filled her with lead.
 All this before she could even say anything.
 Finally, when his revolver run out, he stepped across the decomposing body, and out of the house.
+
+CHAPTER "KILLINGS"
+
+When Conor walked into the school the next day, people were looking at him weirdly.
+Probably because he was a serial killer.
+Lily was already in the graveyard.
+And Conor guessed that even if she was alive, she wouldn't speak to him.
+As he waited by the stone wall, he saw Harry, Sully and Anton.
+He felt weak with relief.
+That day passed slowly for Conor, but he didn't care.
+Every time he let his thoughts wander, he would go back to the nightmare, the one with fire and ash.
+And every time _that_ happened, he would get angry.
+Then, he would finger the piece of metal in his pocket again.
+If he couldn't take it anymore, he would take it out, and start killing.
+And so it continued.
+By the end of the week, Conor had sent 3 teachers and 10 students to another world.
+
+CHAPTER "I NO LONGER SEE YOU"
+
+There was no hope of paying attention in lessons.
+Which, once again, didn't matter because none of the teachers asked him a question anyway.
+Neither did his classmates.
+By the time lunch break came around. he'd passed another morning not having said a word to anyone.
+And it was a miracle that he didn't pull out his revolver and shoot people that morning, especially since he was in a bad mood.
+He sat alone at the far edge of the dining hall, his food uneaten in front of him.
+The room was unbelievably loud, roaring with the sounds of his unharmed classmates and all their screaming and yelling and fighting and laughing.
+Conor did his best to ignore it.
+Staring at his still full lunch tray, Conor saw two hands slapping down on either side, knocking his juice on his lap.
+Looking up, Conor saw Anton and Sully, laughing and pissing him off.
+And here came Harry.
+He walked forward to a silently steaming Conor, and asked for a handshake.
+They shook hands.
+"Goodbye, O'Malley," Harry muttered, "I no longer see you."
+
+CHAPTER "MASSACRE"
+
+And here was the monster.
+"It is time for the third tale, but I don't think that will be neccessary." The monster growled.
+"Why?" Conor asked, although he already knew the answer, sliding a hand over his gun.
+"Because, there is a fairly easy way to make them see."
+Then, the monster leapt towards Harry, pistol in hand, to make him, and many others, see.
+
+CHAPTER "PUNISHMENT"
+
+"O'Malley, if you wish to unleash your anger, this is not the way to do it."
+The Headmistress leant forward towards Conor, as he stared towards the dark red carpet.
+He flexed his fists.
+They were sore again, just like when he destroyed his grandma's house.
+He had felt what had happened.
+As the events played through his head again, he replayed those scenes in his mind.
+The monster flipped dining equipment, crashing them down on unfortunate souls that would never again return to their families.
+He used his pistol to fill Harry with ammunition.
